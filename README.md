@@ -3,7 +3,6 @@
 🚀 近期正專注於Web開發、CG以及數字化產業的研究，並結合 AI 探索創新應用。
 
 ---
-
 📫 歡迎聯絡我：
 - 🌐 [個人網站](https://noveres.github.io/)
 - 💼 [LinkedIn](https://www.linkedin.com/in/%E8%8B%A5%E6%AE%8A-%E5%AE%89-8b5b49324/  )
