@@ -5,7 +5,7 @@
 ---
 📫 歡迎聯絡我：
 - 🌐 [個人網站](https://noveres.github.io/)
-- 💼 [LinkedIn](https://www.linkedin.com/in/%E8%8B%A5%E6%AE%8A-%E5%AE%89-8b5b49324/  )
+- 💼 [LinkedIn](https://www.linkedin.com/in/noveres/)
 - 📧 [Email：andrew901117@gmail.com](https://mail.google.com/mail/?view=cm&to=andrew901117@gmail.com)
 
 
