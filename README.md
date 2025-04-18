@@ -9,4 +9,4 @@
 - 📧 [Email：andrew901117@gmail.com](https://mail.google.com/mail/?view=cm&to=andrew901117@gmail.com)
 
 
-🎯 目前積極尋找 網路應用工程/ 遊戲開發 / 技術美術  等職位機會。
+🎯 熱愛打造互動體驗，現正積極尋找應用程式開發與遊戲開發職位，尋找能發揮創意與技術的職涯機會。
